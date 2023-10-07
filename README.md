@@ -1,6 +1,3 @@
-ABER CHARITY EDNA
-M23B13/001
- 
 PROBLEM
 Lack of quality education.
 
